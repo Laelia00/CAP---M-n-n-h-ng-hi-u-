@@ -1,2 +1,2 @@
 # CAP- Nón mũ thời trang hàng hiệu 
-CAP.COM.VN được biết tới là một công ty được thành lập khá non trẻ về ngành mũ nón hàng hiệu. Đảm bảo mang tới cho khách hàng sự hài lòng về thời trang - chất lượng - cao cấp. 
+CAP.COM.VN được biết tới là một công ty được thành lập khá non trẻ về ngành mũ nón hàng hiệu. Song CAP vẫn luôn cố gắng mang tới cho khách hàng sự hài lòng về thời trang - chất lượng - cao cấp. Nhà thiết kế của CAP không ngừng cho ra mắt những dòng mũ như: mũ lưỡi trai, mũ Snapback, beret, baker boy, hip hop, bucket ... Trong đó AnchorAndHeml là một trong những dòng thiết kế độc quyền của CAP.COM.VN. 
